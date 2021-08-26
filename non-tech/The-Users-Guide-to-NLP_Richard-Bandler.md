@@ -1,6 +1,6 @@
 # How to Take Charge of Your Life
 ## The User's Guide to NLP
-### Author - Richard Bandler
+### Author - Richard Bandler [Author site](https://richardbandler.com/interviews/)
 
 **Day 1 - How to change Negative thinking**
 
