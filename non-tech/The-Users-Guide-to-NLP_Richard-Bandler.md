@@ -1,4 +1,4 @@
-#How to Take Charge of Your Life
+# How to Take Charge of Your Life
 ## The User's Guide to NLP
 ### Author - Richard Bandler
 
